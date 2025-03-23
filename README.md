@@ -2,4 +2,4 @@
 
 The First Semester, 2025    
 Kyungbok University, Namyangju    
-Adjunct Professor: Gwangyu Lee    
+Adjunct Professor    
