@@ -2,3 +2,4 @@
 
 The First Semester, 2025    
 Kyungbok University, Namyangju    
+Lecturer: Gwangyu Lee
